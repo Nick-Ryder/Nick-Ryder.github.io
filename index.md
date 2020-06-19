@@ -25,3 +25,5 @@ australischen Fernsehens – darunter 1988 den Gold Logie in der Kategorie Belie
 > I love to have a bath with beautiful, relaxing music on and have no rush to 
 > do anything. It's a wonderful indulgence, and it helps me to calm down and 
 > stop my mind running overtime.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/dc/Kylie_Minogue_-_Golden_Tour_-_Motorpoint_Arena_-_Nottingham_-_20.09.18._-_%28_38_%29_%2846464745491%29_%28cropped%29.jpg/170px-Kylie_Minogue_-_Golden_Tour_-_Motorpoint_Arena_-_Nottingham_-_20.09.18._-_%28_38_%29_%2846464745491%29_%28cropped%29.jpg"/>
