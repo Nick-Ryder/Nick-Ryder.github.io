@@ -22,3 +22,6 @@ australischen Fernsehens – darunter 1988 den Gold Logie in der Kategorie Belie
 * Zeit bei Roc Nation (2013–2016)
 * Rückkehr zu BMG. Seit 2017
 
+> I love to have a bath with beautiful, relaxing music on and have no rush to 
+> do anything. It's a wonderful indulgence, and it helps me to calm down and 
+> stop my mind running overtime.
