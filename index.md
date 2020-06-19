@@ -8,3 +8,4 @@ Denn erst mit der Storyline über die romantische Liebesbeziehung zwischen Charl
 abgesetzte Seifenoper höhere Einschaltquoten und wurde ab 1987 auch in Großbritannien ausgestrahlt. Minogue und Donovan waren zu diesem Zeitpunkt auch privat ein Paar.
 Minogue erhielt für ihre Darstellung in den Jahren 1987 bis 1989 insgesamt sechs Logie Awards, den jährlich vergebenen Preis des 
 australischen Fernsehens – darunter 1988 den Gold Logie in der Kategorie Beliebteste Person im australischen Fernsehen
+
